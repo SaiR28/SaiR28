@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently working on several IOT projects <br>and keen on learning other technologies 
+Figuring multiple things 
 
 
 ## 🌐 Socials:
